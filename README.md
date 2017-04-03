@@ -1,6 +1,6 @@
 ## Introduction
 
-A whale fall is when the carcass of a whale falls deep enough to the ocean floor that it isn't consumed by scavangers. It can create complex ecosystems of deep-sea organisms for decades.
+A whale fall is when the carcass of a whale falls deep enough to the ocean floor that it isn't consumed by scavengers. It can create complex ecosystems of deep-sea organisms for decades.
 
 ## Contents
 
